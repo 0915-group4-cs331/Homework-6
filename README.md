@@ -9,6 +9,6 @@
 - Prachi Das Purkaystha
 
 ## Youtube Links
-Prachi Das Purkaystha & Mateo Chimbo -
-Sameeha Kamal & Rahat Moktadir -
-Theophilus Bassaw & Unsa Chaudhry -
+- Prachi Das Purkaystha & Mateo Chimbo -
+- Sameeha Kamal & Rahat Moktadir -
+- Theophilus Bassaw & Unsa Chaudhry -
